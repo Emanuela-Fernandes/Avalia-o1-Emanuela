@@ -1,1 +1,0 @@
-# Avaliação1-Emanuela
